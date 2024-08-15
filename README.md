@@ -1,2 +1,5 @@
 # MY-STOCK-IMAGES
-Just images for my stuff (nothing to see here...)
+Welcome to the square's image stock... (why you are here?)
+
+
+
